@@ -3,29 +3,29 @@
 ### March
 
 [Libros mutantes](http://librosmutantes.com)   
-Madrid, Spain
+*Madrid, Spain*
 
 ### June
 
 [ELCAF](http://www.elcaf.co.uk)  
-London, UK
+*London, UK*
 
 ### July
 
 [ZineFest: Rencontre de Micro-Edition Fanzine & Multiple A Bordeaux](http://zinefest.fr)  
-Bordeaux, France
+*Bordeaux, France*
 
 ### September  
 
 [Helsinki Comics Festival](http://sarjakuvafestivaalit.fi)      
-Kattilahalli, Helsinki
+*Kattilahalli, Helsinki*
 
 ### November
 
 [Zinefest](http://zinefestberlin.com)  
-Berlin, Germany
+*Berlin, Germany*
 
 ### December
 
 [MEA](http://meamaravilloso.blogspot.com.es)  
-Madrid, Spain
+*Madrid, Spain*
