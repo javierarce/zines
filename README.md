@@ -12,12 +12,12 @@
 
 ### July
 
-[ZineFest: Rencontre de Micro-Edition Fanzine & Multiple A Bordeaux](http://zinefest.fr)  
+[ZineFest](http://zinefest.fr)  
 *Bordeaux, France*
 
 ### September  
 
-[Helsinki Comics Festival](http://sarjakuvafestivaalit.fi)      
+[Helsinki Comics Festival](http://sarjakuvafestivaalit.fi)  
 *Kattilahalli, Helsinki*
 
 ### November
@@ -27,5 +27,5 @@
 
 ### December
 
-[MEA](http://meamaravilloso.blogspot.com.es)  
+[MEA](http://meamaravilloso.blogspot.com.es) . 
 *Madrid, Spain*
