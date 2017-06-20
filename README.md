@@ -27,5 +27,5 @@
 
 ### December
 
-* [MEA](http://meamaravilloso.blogspot.com.es) . 
+* [MEA](http://meamaravilloso.blogspot.com.es)  
 *Madrid, Spain*
