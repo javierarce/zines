@@ -10,6 +10,9 @@
 * [ELCAF](http://www.elcaf.co.uk)  
 *London, UK*
 
+* [Fanzines!](http://fanzinesfestival.fr)
+Paris, France
+
 ### July
 
 * [ZineFest](http://zinefest.fr)  
