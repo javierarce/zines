@@ -13,6 +13,9 @@
 * [Fanzines!](http://fanzinesfestival.fr)  
 Paris, France
 
+* [Tenderete](http://tenderetefestival.tumblr.com)  
+Valencia, Spain
+
 ### July
 
 * [ZineFest](http://zinefest.fr)  
