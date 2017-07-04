@@ -21,6 +21,11 @@ Valencia, Spain
 * [ZineFest](http://zinefest.fr)  
 *Bordeaux, France*
 
+### August
+
+* [Safari Festival](http://www.breakdownpress.com/safarifestival)  
+*London, UK*
+
 ### September  
 
 * [Helsinki Comics Festival](http://sarjakuvafestivaalit.fi)  
