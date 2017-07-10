@@ -21,6 +21,9 @@ Valencia, Spain
 * [ZineFest](http://zinefest.fr)  
 *Bordeaux, France*
 
+* [MISS READ: Berlin Art Book Festival](http://missread.com/)  
+*Berlin, Germany*
+
 ### August
 
 * [Safari Festival](http://www.breakdownpress.com/safarifestival)  
