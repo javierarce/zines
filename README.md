@@ -26,6 +26,9 @@ Valencia, Spain
 
 ### August
 
+* [Zinedream](http://zinedream.com) . 
+*Toronto, Canada* . 
+
 * [Safari Festival](http://www.breakdownpress.com/safarifestival)  
 *London, UK*
 
