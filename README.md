@@ -42,6 +42,9 @@ Valencia, Spain
 * [Zinefest](http://zinefestberlin.com)  
 *Berlin, Germany*
 
+* [GRAF](http://grafcomic.com)  
+*Madrid, Spain*
+
 ### December
 
 * [MEA](http://meamaravilloso.blogspot.com.es)  
